@@ -1,4 +1,4 @@
-# 
+# best opensea sniper bot | trailing-stop + proxy-transactions is the best opensea sniper bot, featuring trailing-stop and proxy-transactions. Fast, smart, and optimized for NFT
 
 
 
